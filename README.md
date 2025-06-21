@@ -27,7 +27,7 @@ I can program in:
 
 ## 🎵 Hobbies & Interests
 Outside of coding, I love:  
-- 🎹 Practicing piano for my **Grade 7** exams and creating my own arrangements of pieces.  
+- 🎹 Practicing piano and creating my own arrangements of pieces.  
 - 🤘 Listening to metal music — I'm especially excited to see **Metallica** live this year after my A Levels!  
 
 ---
